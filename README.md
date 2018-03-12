@@ -1,0 +1,2 @@
+# quotes
+Quote of life
